@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @sigmaphoned
 - 👀 I’m interested in only money
-- 📫 How to reach me u cant know
 - 😄 Pronouns: se/xy
 - ⚡ Fun fact: hush mode
 
